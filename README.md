@@ -1,0 +1,3 @@
+# ansormedjakhongir
+Saralash
+Jakhongir Tulanov
